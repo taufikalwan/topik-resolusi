@@ -1,2 +1,1 @@
-# topik-resolusi
-repositori blabla blaalalal
+Goggle Digital Garage
